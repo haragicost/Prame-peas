@@ -1,2 +1,2 @@
-# Prame-peas
+# Prame-pesa
 Online earn money 
